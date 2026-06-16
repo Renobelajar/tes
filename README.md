@@ -1,1 +1,1 @@
-strava mootr
+strava motor gas
